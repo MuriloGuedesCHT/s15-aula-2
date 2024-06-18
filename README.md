@@ -18,4 +18,4 @@ DESTAQUES PRINCIPAIS
 
 > Raphael Veiga precisa de mais um duelo para alcançar a 37ª posição do ranking de atletas com mais partidas pelo Palmeiras na história (soma 297, atrás de Pires, com 298) e a 16ª colocação da lista de jogadores com mais confrontos pelo clube em Brasileiro (soma 144, atrás de Gustavo Gómez, com 145).
 
-
+djjoojdsoioippdsldsciodicldsicd
