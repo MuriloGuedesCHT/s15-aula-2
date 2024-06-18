@@ -11,3 +11,4 @@ DESTAQUES PRINCIPAIS
 • Protagonista na inauguração do Mineirão em 1965, quando representou a Seleção Brasileira e venceu o Uruguai por 3 a 0, o Verdão atuará pela primeira vez na Arena MRV. Ao todo, o Maior Campeão do Brasil já passou por 15 cidades mineiras, em 26 estádios diferentes.
 
 
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
